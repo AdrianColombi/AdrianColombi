@@ -1,4 +1,4 @@
-Boas vindas ao meu perfil 💙💙
+Boas vindas ao meu perfil 
 Adrian Colombi Barbosa
 
 Estou estudando na Alura
